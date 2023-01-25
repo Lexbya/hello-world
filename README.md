@@ -1,6 +1,4 @@
 # hello-world
-lil' experience uwu
-
 If you have came across with this, you should leave...
 
 No really, there is nothing for you...
