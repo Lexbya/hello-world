@@ -13,4 +13,4 @@ We should meet~
 
 I like misterious people, and since I don't know that you even exist, that makes you the greatest mistery ever for me ;D
 
-We should meet and unravel each other misteries's <3
+We should meet and unravel each other misteries's someday <3
